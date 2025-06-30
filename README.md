@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sidd-ctrl
 - 👀 I’m interested in ...machine learning
 - 🌱 I’m currently learning ...
-- 📫 How to reach me ...@_s.i.dd.h.a.n.t_
+- 📫 How to reach me ...@(https://www.instagram.com/_sid.ig/)
 - 😄 Pronouns: ...techie
 - ⚡ Fun fact: ...code->chill
 
