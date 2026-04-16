@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sidd-ctrl
-- 👀 I’m interested in ...machine learning
+- 👀 I’m interested in ...machine learning ,Full-Stack Dev & AI Solutions
 - 🌱 I’m currently learning ...
 - 📫 How to reach me ...@(https://www.instagram.com/_sid.ig/)
 - 😄 Pronouns: ...techie
